@@ -1,1 +1,0 @@
-# prospect-bil-genie-thermie
